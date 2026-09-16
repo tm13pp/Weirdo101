@@ -124,7 +124,7 @@
   </style>
 </head>
 <body>
-  <h1>MuTeLuv</h1>
+  <h1>Weirdo101</h1>
   <h2>"Hi" By My Luck Final EP</h2>
   <h3>🔔Start Trending 7 PM<h3>
   <h4>BOOM💣 15/9📅- 8 PM | 10 PM | 12 AM</h4>
